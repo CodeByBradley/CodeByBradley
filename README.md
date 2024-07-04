@@ -1,2 +1,1 @@
-- 👋 Hi, I’m @CodeByBradley
-not much else to say 
+- 👋 Hi, I’m Brandon Jadoonanan Student at Sams
