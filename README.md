@@ -1,1 +1,1 @@
-- 👋 Hi, I’m Brandon Jadoonanan Student at Sams
+- 👋 Hi, I’m Bradley Jadoonanan Student at CTS
