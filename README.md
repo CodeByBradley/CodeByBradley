@@ -1,1 +1,1 @@
-- 👋 Hi, I’m Bradley Jadoonanan Student at CTS
+- 👋 Hi, I’m Bradley Jadoonanan Student at The University Of Bedfordshire
